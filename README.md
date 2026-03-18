@@ -1,1 +1,0 @@
-# dentsu_umidoko
